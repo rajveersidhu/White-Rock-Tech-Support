@@ -57,7 +57,7 @@ You will be advised of the expected cost before paid work begins.
 
 ## Contact
 
-**Phone:** +1 (778)680-0385  
+**Phone:** +1 (778) 680-0385  
 **Email:** rajveer.singh.sidhu@hotmail.com  
 **Service Area:** White Rock & South Surrey, BC
 
